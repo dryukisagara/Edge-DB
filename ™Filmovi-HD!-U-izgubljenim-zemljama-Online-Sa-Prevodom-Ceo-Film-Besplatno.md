@@ -1,6 +1,7 @@
 # ™Ｆｉｌｍｏｖｉ-ＨＤ! U izgubljenim zemljama Ｏｎｌｉｎｅ Ｓａ Ｐｒｅｖｏｄｏｍ | Ｃｅｏ Ｆｉｌｍ Ｂｅｓｐｌａｔｎｏ
 
-𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎 𝚏𝚒𝚕𝚖 𝚘𝚗𝚕𝚒𝚗𝚎 𝚜𝚊 𝚙𝚛𝚎𝚟𝚘𝚍𝚘𝚖, 𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎 𝚌𝚎𝚘 𝚏𝚒𝚕𝚖, 𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎 𝚐𝚕𝚎𝚍𝚊𝚓 𝚘𝚗𝚕𝚒𝚗𝚎, 𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎 𝚏𝚒𝚕𝚖 𝚜𝚊 𝚙𝚛𝚎𝚟𝚘𝚍𝚘𝚖, 𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎 𝚏𝚒𝚕𝚖 𝚜𝚒𝚗𝚑𝚛𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎𝚣𝚘𝚟𝚊𝚗𝚘 𝚗𝚊 𝚜𝚛𝚙𝚜𝚔𝚒, 𝙰𝚟𝚊𝚝𝚊𝚛 𝟸: 𝙿𝚞𝚝 𝚟𝚘𝚍𝚎 𝚜𝚛𝚋𝚒𝚓𝚊
+U izgubljenim zemljama 𝚏𝚒𝚕𝚖 𝚘𝚗𝚕𝚒𝚗𝚎 𝚜𝚊 𝚙𝚛𝚎𝚟𝚘𝚍𝚘𝚖, U izgubljenim zemljama 𝚌𝚎𝚘 𝚏𝚒𝚕𝚖, U izgubljenim zemljama 𝚐𝚕𝚎𝚍𝚊𝚓 𝚘𝚗𝚕𝚒𝚗𝚎, U izgubljenim zemljama 𝚏𝚒𝚕𝚖 𝚜𝚊 𝚙𝚛𝚎𝚟𝚘𝚍𝚘𝚖, U izgubljenim zemljama 𝚏𝚒𝚕𝚖 𝚜𝚒𝚗𝚑𝚛U izgubljenim zemljama𝚣𝚘𝚟𝚊𝚗𝚘 𝚗𝚊 𝚜𝚛𝚙𝚜𝚔𝚒, U izgubljenim zemljama 𝚜𝚛𝚋𝚒𝚓𝚊
+
 
 **✥☑ 𝙺𝚕𝚒𝚔𝚗𝚒𝚝𝚎 𝚘𝚟𝚍𝚓𝚎 ►► [U izgubljenim zemljama 𝙾𝚗𝚕𝚒𝚗𝚎 𝚂𝚊 𝙿𝚛𝚎𝚟𝚘𝚍𝚘𝚖](https://tinyurl.com/yw5vw7ty)**
 
